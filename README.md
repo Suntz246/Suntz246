@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @Suntz246
 - 👀 My dream is world peace :)
+- Day Day Up!
